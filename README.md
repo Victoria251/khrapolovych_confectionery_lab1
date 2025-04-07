@@ -1,0 +1,1 @@
+# khrapolovych_confectionery_lab1
